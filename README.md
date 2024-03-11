@@ -13,4 +13,4 @@
 > a diferença 💜
 
 #Mais
-- [Linkedin]([https://breakdance.github.io/breakdance/](https://www.linkedin.com/in/leticia-cristina-a1a988233/)https://www.linkedin.com/in/leticia-cristina-a1a988233/) - Meu linkedin ainda está em crescimento, mas já é um início
+- [Linkedin](https://www.linkedin.com/in/leticia-cristina-a1a988233/) - Meu linkedin ainda está em crescimento, mas já é um início
