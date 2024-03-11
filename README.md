@@ -12,5 +12,5 @@
 > desse curso, para que eu faça
 > a diferença 💜
 
-#Mais
+# Mais
 - [Linkedin](https://www.linkedin.com/in/leticia-cristina-a1a988233/) - Meu linkedin ainda está em crescimento, mas já é um início
